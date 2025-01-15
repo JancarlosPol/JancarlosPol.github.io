@@ -1,1 +1,0 @@
-# JancarlosPol.github.io
